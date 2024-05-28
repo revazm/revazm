@@ -2,7 +2,7 @@
 - 👀 I’m interested in Programming
 - 🌱 I’m currently learning To Become Junior
 - 💞️ I’m looking to collaborate on Google chat
-- 📫 How to reach me: at Slack app add Revazm
+- 📫 How to reach me: at Slack app add Revaz
 - 😄 Pronouns: Saqartvelo 
 - ⚡ Fun fact: Have to spend Too much time before become a Programmer
 
